@@ -1,3 +1,6 @@
+
+![Cover](ALonelyPlace - Cover.jpg)
+
 # Space, A Time & Place
 
 Couldn’t stop thinking about Space  
