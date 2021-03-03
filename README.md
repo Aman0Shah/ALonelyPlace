@@ -43,9 +43,9 @@ he could never forget the Place
 [comment]: <> 19 Lines (Total)
 ## H
 
-# Blrub
-"Simply Amazing" - _Amber_  
+# Blrubs 
+"Simply Amazing, Can't Believe Aman has created such art. He has proven himself once again. BRAVO!"  - _Amber_  
   
-"Wow! Absolutuly wonderful it really gets you thinking!" - _Nikhil_  
+"Wow! Absolutuly wonderful it really gets you thinking!"  - _Nikhil_  
   
-"A Delight!" - _Priti_  
+"A Delight! Just so many good pieces! Aman has outdone himself again."  - _Priti_  
