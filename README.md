@@ -2,7 +2,7 @@
 ![Cover](Cover.jpg)
 # Author Description 
 
-![Me](Portrait.jpeg)
+![Me](ortrait.jpeg)
 # POEMS - Start
 ## Space, A Time & Place
 
