@@ -44,8 +44,11 @@ he could never forget the Place
 ## H
 
 # Blrubs 
-"Simply Amazing, Can't Believe Aman has created such art. He has proven himself once again. BRAVO!"  - _Amber_  
+"Simply Amazing, Can't Believe What art, he has proven himself once again. BRAVO!"  
+- _Amber_  
   
-"Wow! Absolutuly wonderful it really gets you thinking!"  - _Nikhil_  
+"Wow! Absolutuly wonderful it really gets you thinking!"  
+- _Nikhil_  
   
-"A Delight! Just so many good pieces! Aman has outdone himself again."  - _Priti_  
+"A Delight! Just so many good pieces! Aman has outdone himself again."  
+-  _Priti_  
