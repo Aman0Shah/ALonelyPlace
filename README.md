@@ -4,11 +4,12 @@
 My name is Aman Shah. I am a Junior at WHS!  
 I play tennis on a regular basis. Currently, I am JV Captain.   
 And participate in M.U.N. for 3 years now, racking multiple awards.  
-I love to speedrun video games in my spare time, I play Legend of Zelda the most.  
+I love to speedrun video games in my spare time, I play _Legend of Zelda: Spirit Tracks_.  
   
 This compilation of poems took multiple hours to complete.  
 Including the graphics for the cover, the _POEMS_ themself, and creating the website.  
-**Please, Enjoy.** 
+Thank you for taking your time to view it.  
+Please, Enjoy.
 
 ![Me](ortrait.jpeg)
 # POEMS - Start
@@ -41,3 +42,8 @@ he could never forget the Place
 
 [comment]: <> 19 Lines (Total)
 ## H
+
+# Blrub
+"Simply Amazing" - _Amber_ 
+"Wow! Absolutuly wonderful it really gets you thinking!" - _Nikhil_ 
+"A Delight!" - _Priti_
