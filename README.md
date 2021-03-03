@@ -1,6 +1,11 @@
 
 ![Cover](Cover.jpg)
 # Author Description 
+My name is Aman Shah.  
+I play tennis and have been a part of M.U.N. for 3 years now.  
+I love to speedrun video games in my spare time. This compilation of poems took multiple hours to complete.  
+Including the graphics for the cover, the _POEMS_ themself, and creating the website.  
+**Please Enjoy.** 
 
 ![Me](ortrait.jpeg)
 # POEMS - Start
