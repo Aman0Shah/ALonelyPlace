@@ -1,5 +1,6 @@
+
 # Cover
-![Cover](Cover.jpg)
+![Cover](Cover.jpg)  
 # Author Description 
 My name is Aman Shah. I am a Junior at WHS!  
 I play tennis on a regular basis. Currently, I am JV Captain.   
