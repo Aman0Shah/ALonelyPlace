@@ -1,11 +1,14 @@
-
+# Cover
 ![Cover](Cover.jpg)
 # Author Description 
-My name is Aman Shah.  
-I play tennis and have been a part of M.U.N. for 3 years now.  
-I love to speedrun video games in my spare time. This compilation of poems took multiple hours to complete.  
+My name is Aman Shah. I am a Junior at WHS!  
+I play tennis on a regular basis. Currently, I am JV Captain.   
+And participate in M.U.N. for 3 years now, racking multiple awards.  
+I love to speedrun video games in my spare time, I play Legend of Zelda the most.  
+  
+This compilation of poems took multiple hours to complete.  
 Including the graphics for the cover, the _POEMS_ themself, and creating the website.  
-**Please Enjoy.** 
+**Please, Enjoy.** 
 
 ![Me](ortrait.jpeg)
 # POEMS - Start
