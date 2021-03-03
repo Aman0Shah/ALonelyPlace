@@ -1,5 +1,5 @@
 
-![Cover](ALonelyPlace - Cover.jpg)
+![Cover](Cover.jpg)
 
 # Space, A Time & Place
 
