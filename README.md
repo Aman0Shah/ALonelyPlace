@@ -1,8 +1,10 @@
 
 ![Cover](Cover.jpg)
-## Author Description 
-## POEMS - Start
-# Space, A Time & Place
+# Author Description 
+
+![Me](Portrait.jpeg)
+# POEMS - Start
+## Space, A Time & Place
 
 Couldn’t stop thinking about Space  
 It is so empty and far  
@@ -29,5 +31,5 @@ A place of hope, A place to scope
 Couldn’t stop thinking about Space  
 he could never forget the Place  
 
-[comment]: <> 19 
-# H
+[comment]: <> 19 Lines (Total)
+## H
