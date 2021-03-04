@@ -41,6 +41,11 @@ A place of hope, A place to scope
 Couldn’t stop thinking about Space  
 he could never forget the Place  
   
+## So …  
+Look around it's free  
+Animals can roam the Earth pleased  
+So, don’t put a fee  
+  
 ## Ocean, Roaring Waves
 The sea, is vast and furious  
 Crushes the ships under its thumb  
@@ -67,6 +72,11 @@ Alone, in such a large world she roars
 The sea, is vast and furious  
 She is gentle but rude, to invaders  
   
+## Life Once Again  
+Life moves on despite,  
+You giving permission to it  
+Enjoy, what you have, ok?  
+   
 ## Desert, Not Dessert
 Bone-Dry, with only a lizard passing by  
 A villager separated from the pack, lost  
@@ -93,6 +103,11 @@ Only Desert for miles, nothing in site
 Bone-Dry, with only a lizard passing by  
 Only time can tell if anyone can survive  
   
+## Spoiled Milk  
+Don’t cry over spilled milk  
+It was going to be bad anyway  
+Smile, it is now cheese  
+  
 ## Jungle, Here’s my Fury
 Green vines all around, the jaguar crys  
 The lone wolf of the jungle  
@@ -118,6 +133,11 @@ His fury masked, sad, wanting more
 No trust, just the flame of his’s fury  
 Green vines all around, the jaguar crys  
 He roars, eyes blazing, power unspoken  
+  
+## science  
+Life as we know it  
+So young, so beautiful  
+It shall grow forever  
   
 ## Urban, Dust & Debris
 Cars, Buses, Trains, Planes zipping around   
@@ -150,26 +170,6 @@ The flower grew such
 it wanted to be a tree  
 alone in a field  
   
-## Spoiled Milk  
-Don’t cry over spilled milk  
-It was going to be bad anyway  
-Smile, it is now cheese  
-  
-## Life Once Again  
-Life moves on despite,  
-You giving permission to it  
-Enjoy, what you have, ok?  
-  
-## So …  
-Look around it's free  
-Animals can roam the Earth pleased  
-So, don’t put a fee  
-  
-
-## science  
-Life as we know it  
-So young, so beautiful  
-It shall grow forever  
   
 # Blrubs 
 **"Simply Amazing, Can't Believe What art, he has proven himself once again. BRAVO!"**  
