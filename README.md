@@ -145,12 +145,32 @@ Can’t be fixed with an ointment
 Cars, Buses, Trains, Planes zipping around  
 Not a care about the planet as they move  
   
-## Poem 6
-## Poem 7
-## Poem 8
-## Poem 9
-## Poem 10
+## The Flower Tree
+The flower grew such  
+it wanted to be a tree  
+alone in a field  
+  
+## Spoiled Milk  
+Don’t cry over spilled milk  
+It was going to be bad anyway  
+Smile, it is now cheese  
+  
+## Life Once Again  
+Life moves on despite,  
+You giving permission to it  
+Enjoy, what you have, ok?  
+  
+## So …  
+Look around it's free  
+Animals can roam the Earth pleased  
+So, don’t put a fee  
+  
 
+## science  
+Life as we know it  
+So young, so beautiful
+It shall grow forever  
+  
 # Blrubs 
 **"Simply Amazing, Can't Believe What art, he has proven himself once again. BRAVO!"**  
 - _Amber_  
