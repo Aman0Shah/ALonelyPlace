@@ -87,7 +87,7 @@ Separated from the pack, not a civilian in site, can’t get ready for that figh
 Bone-Dry, with only a lizard passing by  
   
 Help isn’t on its way  
-Lost from civilization, all a lone  
+Lost from civilization, all alone  
 Only time can tell if anyone can survive  
   
 Hoping for a plater, only cactus for him  
