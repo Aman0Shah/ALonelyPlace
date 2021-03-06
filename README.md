@@ -1,17 +1,7 @@
 
 # Cover
 ![Cover](Cover.jpg)  
-# Author Description 
-My name is Aman Shah. I am a Junior at WHS!  
-I play tennis on a regular basis. Currently, I am JV Captain.   
-I have participated in M.U.N. for 3 years now, racking multiple awards.  
-Lastly, I love to speedrun video games in my spare time,  
-I play _MarioKart_, but mostly _Legend of Zelda: Spirit Tracks_.  
-  
-This compilation of poems took multiple hours to complete.  
-Including the graphics for the cover, the _POEMS_ themself, and creating the website.  
-Thank you for taking your time to view the Collection.  
-Please, Enjoy.
+# Author's Introduction 
 
 ![Me](ortrait.jpeg)
 # POEMS - Start
@@ -169,8 +159,18 @@ Not a care about the planet as they move
 The flower grew such  
 it wanted to be a tree  
 alone in a field  
+
+  # Description 
+My name is Aman Shah. I am a Junior at WHS!  
+I play tennis on a regular basis. Currently, I am JV Captain.   
+I have participated in M.U.N. for 3 years now, racking multiple awards.  
+Lastly, I love to speedrun video games in my spare time,  
+I play _MarioKart_, but mostly _Legend of Zelda: Spirit Tracks_.  
   
-  
+This compilation of poems took multiple hours to complete.  
+Including the graphics for the cover, the _POEMS_ themself, and creating the website.  
+Thank you for taking your time to view the Collection.  
+
 # Blrubs 
 **"Simply Amazing, Can't Believe What art, he has proven himself once again. BRAVO!"**  
 - _Amber_  
