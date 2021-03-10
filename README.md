@@ -2,8 +2,11 @@
 # Cover
 ![Cover](Cover.jpg)  
 # Author's Introduction 
+Dear Reader,  
+  
+  
+This compilation of poems were insipried by the theme "A Lonely Place". Here, I took common places where people usually can't explore and expand on why such places are lonely. I used space, the ocean, desert, jungle, and city. These *5* places are considered to take up most of Earth.   
 
-![Me](ortrait.jpeg)
 # POEMS - Start
 ## Space, A Time & Place
 Couldn’t stop thinking about Space  
