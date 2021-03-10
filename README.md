@@ -173,5 +173,6 @@ Aman Shah is a Junior at WHS! He plays tennis on a regular basis. Currently, hol
  - Nikhil  
 “A Delight! Just so many good pieces! Aman has outdone himself again.”  
  - Priti  
+  
 **5 Vignettes (19 x 5) = 95 + 5 Haikus (3 x 5) = 110 LINES**
   
