@@ -169,8 +169,10 @@ Aman Shah is a Junior at WHS! He plays tennis on a regular basis. Currently, hol
 # Blurbs
 “Simply Amazing, Can’t Believe What art, he has proven himself once again. BRAVO!”  
  - Amber  
+  
 “Wow! Absolutely wonderful it really gets you thinking!”  
  - Nikhil  
+  
 “A Delight! Just so many good pieces! Aman has outdone himself again.”  
  - Priti  
   
