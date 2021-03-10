@@ -165,7 +165,7 @@ it wanted to be a tree
 alone in a field  
 
 # Description  
-Aman Shah is a Junior at WHS! He plays tennis on a regular basis. Currently, holding the position of JV Captain and starter. He continues to participate in M.U.N., and has done so for 3 years now, racking multiple awards. Lastly, he loves to speedrun video games in his spare time, playing _MarioKart_, but mostly _Legend of Zelda: Spirit Tracks_ wanting to get a Nintendo Switch Pro. Born in Bellflower, California he recides in Cerritos now for 16 years. In this collection, he demontrates his love for poetry and the intricacies of living boldly.  
+Aman Shah is a Junior at WHS! He plays tennis on a regular basis. Currently, holding the position of JV Captain and starter. He continues to participate in M.U.N., and has done so for 3 years now, racking multiple awards. Lastly, he loves to speedrun video games in his spare time, playing _MarioKart_, but mostly _Legend of Zelda: Spirit Tracks_ wanting to get a Nintendo Switch Pro later this year if it releases. He is a HUGE Nintendo Fan Boy, despises Apple, and beleives that Andriod is superior to IOS. Born in Bellflower, California he recides in Cerritos now for 16 years. In this collection, he demontrates his love for poetry and the intricacies of living boldly despite lonely times.  
   
 # Blrubs 
 **"Simply Amazing, Can't Believe What art, he has proven himself once again. BRAVO!"**  
