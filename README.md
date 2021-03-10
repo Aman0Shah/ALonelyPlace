@@ -167,8 +167,7 @@ it wanted to be a tree
 alone in a field  
 
 # Description
-![ME](stickfigure.jpg)  
-  
+<img style="float: right;" src="stickfigure.jpg">
 Aman Shah is a Junior at WHS! He plays tennis on a regular basis. Currently, holding the position of JV Captain and starter. He continues to participate in _M.U.N._ and has done so for 3 years now, racking multiple awards. Lastly, he loves to speedrun video games in his spare time, playing MarioKart, but mostly _Legend of Zelda: Spirit Tracks_ wanting to get a Nintendo Switch Pro later this year if it releases. He is a HUGE Nintendo Fan Boy, despises Apple, and believes that Andriod is superior to IOS. Born in Bellflower, California he resides in Cerritos now for 16 years. In this collection, he demonstrates his love for poetry and the intricacies of living boldly despite lonely times.  
 
 # Blurbs
