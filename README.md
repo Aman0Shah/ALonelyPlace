@@ -1,5 +1,5 @@
-
-# Cover
+**5 Vignettes = 95 + 5 Haikus = 110 LINES**  
+  
 ![Cover](Cover.jpg)  
 # Author's Introduction 
 Dear Reader,  
