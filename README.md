@@ -2,10 +2,10 @@
 ![Cover](Cover.jpg)  
 # Author’s Introduction  
 Dear Reader,  
-This compilation of poems was inspired by the theme “A Lonely Place”. Here, I took common places where people usually can’t explore and expand on why such places are lonely. I used space, the ocean, desert, jungle, and city. These 5 places are considered to take up most of Earth geographically. I use language to express why people, the planet, and objects feel the sense of loneliness despite being vast or near someone. This compilation of poems took multiple hours to complete. Including the graphics for the cover, the POEMS themself, and creating the website. Thank you for taking your time to view the Collection. Enjoy!  
+This compilation of poems was inspired by the theme “A Lonely Place”. Here, I took common places where people usually can’t explore and expand on why such places are lonely. I used space, the ocean, desert, jungle, and city. These _5_ places are considered to take up most of Earth geographically. I use language to express why people, the planet, and objects feel the sense of loneliness despite being vast or near someone. This compilation of poems took multiple hours to complete. Including the graphics for the cover, the _POEMS_ themself, and creating the website. Thank you for taking your time to view the Collection. Enjoy!  
   
 Aman Shah  
-P.S. Mr. Dalley, I hope I get full credit! 😃  
+_P.S. Mr. Dalley, I hope I get full credit!_ 😃  
 
 # POEMS - Start
 ## Space, A Time & Place
@@ -164,17 +164,17 @@ it wanted to be a tree
 alone in a field  
 
 # Description
-Aman Shah is a Junior at WHS! He plays tennis on a regular basis. Currently, holding the position of JV Captain and starter. He continues to participate in M.U.N. and has done so for 3 years now, racking multiple awards. Lastly, he loves to speedrun video games in his spare time, playing MarioKart, but mostly Legend of Zelda: Spirit Tracks wanting to get a Nintendo Switch Pro later this year if it releases. He is a HUGE Nintendo Fan Boy, despises Apple, and believes that Andriod is superior to IOS. Born in Bellflower, California he resides in Cerritos now for 16 years. In this collection, he demonstrates his love for poetry and the intricacies of living boldly despite lonely times.  
+Aman Shah is a Junior at WHS! He plays tennis on a regular basis. Currently, holding the position of JV Captain and starter. He continues to participate in _M.U.N._ and has done so for 3 years now, racking multiple awards. Lastly, he loves to speedrun video games in his spare time, playing MarioKart, but mostly _Legend of Zelda: Spirit Tracks_ wanting to get a Nintendo Switch Pro later this year if it releases. He is a HUGE Nintendo Fan Boy, despises Apple, and believes that Andriod is superior to IOS. Born in Bellflower, California he resides in Cerritos now for 16 years. In this collection, he demonstrates his love for poetry and the intricacies of living boldly despite lonely times.  
 
 # Blurbs
 “Simply Amazing, Can’t Believe What art, he has proven himself once again. BRAVO!”  
- - Amber  
+ - _Amber_  
   
 “Wow! Absolutely wonderful it really gets you thinking!”  
- - Nikhil  
+ - _Nikhil_  
   
 “A Delight! Just so many good pieces! Aman has outdone himself again.”  
- - Priti  
+ - _Priti_  
   
-**5 Vignettes (19 x 5) = 95 + 5 Haikus (3 x 5) = 110 LINES**
+**_5 Vignettes (19 x 5) = 95 + 5 Haikus (3 x 5) = 110 LINES_**
   
