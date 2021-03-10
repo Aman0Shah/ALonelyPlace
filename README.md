@@ -5,7 +5,10 @@
 Dear Reader,  
   
   
-This compilation of poems were insipried by the theme "A Lonely Place". Here, I took common places where people usually can't explore and expand on why such places are lonely. I used space, the ocean, desert, jungle, and city. These *5* places are considered to take up most of Earth.   
+This compilation of poems were insipried by the theme "A Lonely Place". Here, I took common places where people usually can't explore and expand on why such places are lonely. I used space, the ocean, desert, jungle, and city. These *5* places are considered to take up most of Earth. Enjoy! 
+  
+Thank You,  
+Aman Shah  
 
 # POEMS - Start
 ## Space, A Time & Place
@@ -164,16 +167,14 @@ it wanted to be a tree
 alone in a field  
 
 # Description  
-My name is Aman Shah. I am a Junior at WHS!  
-I play tennis on a regular basis. Currently, I am JV Captain.   
-I have participated in M.U.N. for 3 years now, racking multiple awards.  
-Lastly, I love to speedrun video games in my spare time,  
-I play _MarioKart_, but mostly _Legend of Zelda: Spirit Tracks_.  
+Aman Shah is a Junior at WHS!  
+He plays tennis on a regular basis. Currently, holding the position of JV Captain and starter.   
+He continues to participate in M.U.N., and has done so for 3 years now, racking multiple awards.  
+Lastly, he loves to speedrun video games in his spare time,  
+playing _MarioKart_, but mostly _Legend of Zelda: Spirit Tracks_ wanting to get a Nintendo Switch Pro.  
+Born in Bellflower, California he recides in Cerritos now for 16 years.  
+In this collection, he demontrates his love for poetry and the intricacies of living boldly.  
   
-This compilation of poems took multiple hours to complete.  
-Including the graphics for the cover, the _POEMS_ themself, and creating the website.  
-Thank you for taking your time to view the Collection.  
-
 # Blrubs 
 **"Simply Amazing, Can't Believe What art, he has proven himself once again. BRAVO!"**  
 - _Amber_  
