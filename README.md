@@ -4,10 +4,8 @@
 # Author's Introduction 
 Dear Reader,  
   
-  
-This compilation of poems were insipried by the theme "A Lonely Place". Here, I took common places where people usually can't explore and expand on why such places are lonely. I used space, the ocean, desert, jungle, and city. These *5* places are considered to take up most of Earth. Enjoy! 
-  
-Thank You,  
+This compilation of poems were insipried by the theme "A Lonely Place". Here, I took common places where people usually can't explore and expand on why such places are lonely. I used space, the ocean, desert, jungle, and city. These *5* places are considered to take up most of Earth geographically. I use language to express why people, the planet, and objects feel the sence of lonelyness despite being vast or near someone. This compilation of poems took multiple hours to complete. Including the graphics for the cover, the _POEMS_ themself, and creating the website. Thank you for taking your time to view the Collection. Enjoy! 
+   
 Aman Shah  
 
 # POEMS - Start
