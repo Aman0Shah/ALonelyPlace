@@ -1,5 +1,3 @@
-**5 Vignettes = 95 + 5 Haikus = 110 LINES**  
-  
 ![Cover](Cover.jpg)  
 # Author's Introduction 
 Dear Reader,  
@@ -177,3 +175,6 @@ Aman Shah is a Junior at WHS! He plays tennis on a regular basis. Currently, hol
   
 **"A Delight! Just so many good pieces! Aman has outdone himself again."**  
 -  _Priti_  
+  
+**5 Vignettes (19 x 5) = 95 + 5 Haikus (3 x 5) = 110 LINES**  
+  
