@@ -32,10 +32,10 @@ Just in case,
 Break the barrier to win the race  
 he could never forget the Place  
   
-So distant and cold, it can replace
-A place of hope, A place to scope
-Couldn’t stop thinking about Space
-he could never forget the Place
+So distant and cold, it can replace  
+A place of hope, A place to scope  
+Couldn’t stop thinking about Space  
+he could never forget the Place  
 
 ## So …
 Look around it’s free  
