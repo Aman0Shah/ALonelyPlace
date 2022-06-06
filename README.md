@@ -60,14 +60,31 @@ His mind turned to statistics
 Johnson couldn't stop thinking about space  
 But he could never forget his place  
 
-## ______ (Sonnet [20])
+## Crazy Milk (Sonnet [20])
+You are so crazy and I must agree  
+You need some chocolate milk right now for free  
+I won’t be giving it away, you see  
+In all its form, from whole to 2%  
+
+Milk is a beverage that’s hard to beat.  
+It’s packed with nutrients and calcium,  
+so it’s good for the body as well as the soul.  
+Whether you drink it straight from the carton  
+
+or use it in your favorite recipes,  
+milk is a versatile and nourishing drink  
+It’s a delicious, refreshing treat  
+that has something to offer everyone.  
+
+So next time you’re feeling thirsty,  
+reach for a glass of milk and be free.  
 
 
 # Short Fiction Piece
-## ______ (30)
+## ______ ([30])
 
 
-### About the Author: AMAN NIKHIL SHAH (10)
+## About the Author: AMAN NIKHIL SHAH ([10])
 <img style="float: right;" src="stickfigure.jpg">
 Aman Shah is a Senior at Gretchen Whitney High School, graduating on June 8th 2022! 
 He played Tennis on a regular basis at Don Knabe Regional Park and is on the official Whitney Tennis Team. He participated in Model United Nations and has done so for 4 years now, racking multiple awards ranging from Best Delegate to Accommodation. He loves to contribute to the community and will continue to go to M.U.N conferences at UC Berkeley. In his spare time, which has gotten significantly larger in the past few weeks, Aman enjoys speedrunning video games like: MarioKart and Legend of Zelda: Spirit Tracks. As a HUGE Nintendo Fan Boy, Aman was super excited to receive a Nintendo Switch OLED edition for graduation. Further, he takes delight in cooking for his family, and spending time with them. 
