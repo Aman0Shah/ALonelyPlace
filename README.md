@@ -117,7 +117,7 @@ I hadn’t seen Syler or Teddy in a while, they asked how the new roommate was g
 A few days ago, I was walking down Ralphs and saw a bouquet of flowers. I purchased them and attempted to give them to Alexis. I asked, “Would you like to go out with me?” Turns out she did. The date went so well that she officially moved in after the contract was terminated. She eventually started sleeping in my bed. And that was a day to remember, for it was like no other, 6 months ago.
 
 
-## About the Author: AMAN NIKHIL SHAH ([10])
+# About the Author: AMAN NIKHIL SHAH ([10])
 <img style="float: right;" src="stickfigure.jpg">
 Aman Shah is a Senior at Gretchen Whitney High School, graduating on June 8th 2022! 
 He played Tennis on a regular basis at Don Knabe Regional Park and is on the official Whitney Tennis Team. He participated in Model United Nations and has done so for 4 years now, racking multiple awards ranging from Best Delegate to Accommodation. He loves to contribute to the community and will continue to go to M.U.N conferences at UC Berkeley. In his spare time, which has gotten significantly larger in the past few weeks, Aman enjoys speedrunning video games like: MarioKart and Legend of Zelda: Spirit Tracks. As a HUGE Nintendo Fan Boy, Aman was super excited to receive a Nintendo Switch OLED edition for graduation. Further, he takes delight in cooking for his family, and spending time with them. 
