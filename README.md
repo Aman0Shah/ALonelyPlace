@@ -2,7 +2,7 @@
 # Original Poetry
 ## Spoiled Milk (Haiku [5])
 Don’t cry over spilled milk  
-It was going to be bad anyway  
+It was going bad anyway  
 Smile, it is now cheese  
 
 ## not-employment (Free Verse [10])
