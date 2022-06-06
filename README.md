@@ -81,7 +81,40 @@ reach for a glass of milk and be free.
 
 
 # Short Fiction Piece
-## ______ ([30])
+## A Nite to Remember ([30])
+It was a great day, like no other, it was a day to remember. The best day of my life you could say. I would not trade it, barter, or exchange it for anything. Either way, this has definitely changed my life for the better. It all started that day she moved in 2 years ago.
+
+I had recently quit my low paying job at Uber to go work at Google for a higher salary. Turns out, they wanted me to work as an unpaid intern for a year before getting the senior adviser job with a promising six-figure salary. At the time, I thought it was worth it. I ended up having to rent out a bedroom in my apartment; which took a big hit on my mental health. One Sunday evening, 2 weeks after I put up my ad for a roommate, with no luck, my friends and I had been sitting on my sofa playing video games and stuck to a conservation. 
+
+“Ivan, let me pay your rent. It’s no biggie!” exclaimed Syler. Syler Eaves is my friend who happens to be a Lawyer and happens to be rich due to his high profile clients. “You won’t be getting the ladies if you have a roommate, dude!” 
+
+“I don’t need help Syler, I am sure someone will likely come along sooner or later” I responded, not wanting to be bailed out by a close friend. I am independent, this was my decision, and I have to be responsible for that. “Besides, the ladies don’t care if I have a roommate.” 
+
+“What do you know about ladies Ivan?” asked Teddy, my other friend. Unlike me, he was also on payroll, he works as a Laboratory Assistant. Doing dangerous labs for a living. I know he is happy with what he's got. “I gotta gal, and man it feels great.” 
+
+That was the last time I saw my friends before I got a tenant for my room. I went down to the local real estate agent’s office to get the paperwork, terms, and signatures sorted before the person could move in. It wasn’t a very hard process, but why does the line have to be so long to get anything done in this town? I went to the grocery store after the terms were drafted. I was running low on food; I saw this lady, she was helping an old man get his groceries to the car. I probably thought it was her grandfather, other than that it was a normal shopping day. I got home, waiting for my tenant to show up, so we can review the draft and payment options. She was running late, and I was about to rip the agreement. However, I heard a sharp knock on the door. It was her, the woman helping the old man. “Oh, you are here,” I remarked, wanting this to go well. 
+
+“Yes, I was running late, this man needed some assistance with his food. I think you were there too if I am not mistaken?” How did she know? I had to put up a charade, but in the corner of my eye, I saw my grocery bags still on the dining table. There was no point in lying. 
+
+“Yes, I was. I wanted to be here on time.” I retorted. 
+
+“Of course, so … let's get those papers signed!” 
+
+We happened to have dinner together a few nights later, and I found out that she is actually a resident at the local hospital. She has been working there for not so long now, and she needed a place to stay that was cheap. 
+
+“So why my place?”
+
+“It's the closest to the hospital, it has a great view of the beach” she points to the window, “and it was unexpectedly cheap considering other options on the market. I thought it must be a joke, I am glad it wasn’t” 
+
+As the days moved on, I realized her beauty. Her great eyes, and the way she treats others. She exhibits joy and confidence like no one I have seen before. I wanted to ask her out, but I know she is going to say no. It will make things awkward since I am going to be living with her for at least another 6 months. She wasn’t around much, considering she had to work 70 hours a week. I had a bright idea to make dinner for both of us. If she likes it, then maybe I might ask her. If not, it was a nice gesture. Good thinking Ivan. 
+
+“I made us a few pizzas if you want to join me. I know you probably ate already but I doubt I can eat these myself”
+
+“Sure, that smells great. Let me go change out of my scrubs, I will be there. Don’t start without me!” Her eyes lit up as if I had brought her gold or silver to a king. We ended up eating dinner together that night. The next day she was off, and she made us dinner. It was quite unexpected. We took turns making dinner for quite a while. 
+
+I hadn’t seen Syler or Teddy in a while, they asked how the new roommate was going. Turns out when they found out I had been living with a girl, they were more interested in renting out one of their rooms too. Wanting to get that sweet roommate love. 
+
+A few days ago, I was walking down Ralphs and saw a bouquet of flowers. I purchased them and attempted to give them to Alexis. I asked, “Would you like to go out with me?” Turns out she did. The date went so well that she officially moved in after the contract was terminated. She eventually started sleeping in my bed. And that was a day to remember, for it was like no other, 6 months ago.
 
 
 ## About the Author: AMAN NIKHIL SHAH ([10])
