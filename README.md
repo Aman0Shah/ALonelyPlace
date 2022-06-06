@@ -6,59 +6,59 @@ It was going to be bad anyway
 Smile, it is now cheese  
 
 ## not-employment (Free Verse [10])
-Don’t believe, 
-you are not important. 
-Don’t think the dough will be waiting, 
+Don’t believe,  
+you are not important.  
+Don’t think the dough will be waiting,  
 you are not important.  
 
-Like pliable plastic you can proudly say your profoundly poor,
-you are not indispensable
-you are not important.
-Swaying in the wind, you find the drug store.
-you find him on the corner, selling the stuff. 
+Like pliable plastic you can proudly say your profoundly poor,  
+you are not indispensable  
+you are not important.  
+Swaying in the wind, you find the drug store.  
+you find him on the corner, selling the stuff.  
 
-Getting dumb as dirt,
-you are now an idiot in the eyes of the passerby.
-Wee-U- Wee-U! 
-Finding yourself in a cell, with no hope, no life, no family, no soul. 
+Getting dumb as dirt,  
+you are now an idiot in the eyes of the passerby.  
+Wee-U- Wee-U!  
+Finding yourself in a cell, with no hope, no life, no family, no soul.  
 
-Thinking life will get better, broke and on the road
-you are not happy, life has left your eyes.
-you are not going to get that dollar slice. 
-you are not going to get the spot anymore
-you are not going to get your soul 
+Thinking life will get better, broke and on the road  
+you are not happy, life has left your eyes.  
+you are not going to get that dollar slice.  
+you are not going to get the spot anymore  
+you are not going to get your soul  
 
-Run to the nearest stop to get away
-You hold your heart in your hand as you fade. 
-Don’t believe, 
-you are no longer important.
+Run to the nearest stop to get away  
+You hold your heart in your hand as you fade.   
+Don’t believe,  
+you are no longer important.  
 
 
 ## Couldn't Stop Thinking of Space (Villanelle [10])
-Johnson couldn’t stop thinking about space
-It was just so distant and far 
-But he could never forget his place
+Johnson couldn’t stop thinking about space  
+It was just so distant and far  
+But he could never forget his place  
 
-That night, Johnson encountered the stars of space
-He had to calm himself with physics
-Johnson couldn't stop thinking about space
+That night, Johnson encountered the stars of space  
+He had to calm himself with physics  
+Johnson couldn't stop thinking about space  
 
-Later, Johnson was spooked by a mace
-He tried to focus on his favorite lyrics
-But he could never forget his place
+Later, Johnson was spooked by a mace  
+He tried to focus on his favorite lyrics  
+But he could never forget his place  
 
-Aman tired to distract him with a brake 
-Said it was time to start thinking about Civics
-Though Johnson couldn’t stop thinking about space
+Aman tired to distract him with a brake  
+Said it was time to start thinking about Civics  
+Though Johnson couldn’t stop thinking about space  
 
-Johnson took running like in a race
-Space was distant like a hieroglyphic
-But he could never forget his place
+Johnson took running like in a race  
+Space was distant like a hieroglyphic  
+But he could never forget his place  
 
-Johnson might be put on the case
-His mind turned to statistics
-Johnson couldn't stop thinking about space
-But he could never forget his place
+Johnson might be put on the case  
+His mind turned to statistics  
+Johnson couldn't stop thinking about space  
+But he could never forget his place  
 
 ## ______ (Sonnet [20])
 
